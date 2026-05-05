@@ -2,4 +2,4 @@
 
 ----
 
-- 1 - 🎥 [20 Minutes Meditation Music, Instant Peace Calm Down, HEALING Relaxing Music ｜ REMOVE ANXIETY ★ 73](https://github.com/nikzad-avasam/youtube-dl/tree/main/videos/20%20Minutes%20Meditation%20Music%2C%20Instant%20Peace%20Calm%20Down%2C%20HEALING%20Relaxing%20Music%20%EF%BD%9C%20REMOVE%20ANXIETY%20%E2%98%85%2073)
+- 1 - 🎯 [چطور بدون VPN یوتیوب را باز کنیم؟ (روش ساده و سریع) بدون نیاز به دانش کامپیوتری](https://github.com/ostadomid/give-it/tree/master/videos/%DA%86%D8%B7%D9%88%D8%B1%20%D8%A8%D8%AF%D9%88%D9%86%20VPN%20%DB%8C%D9%88%D8%AA%DB%8C%D9%88%D8%A8%20%D8%B1%D8%A7%20%D8%A8%D8%A7%D8%B2%20%DA%A9%D9%86%DB%8C%D9%85%D8%9F%20%28%D8%B1%D9%88%D8%B4%20%D8%B3%D8%A7%D8%AF%D9%87%20%D9%88%20%D8%B3%D8%B1%DB%8C%D8%B9%29%20%D8%A8%D8%AF%D9%88%D9%86%20%D9%86%DB%8C%D8%A7%D8%B2%20%D8%A8%D9%87%20%D8%AF%D8%A7%D9%86%D8%B4%20%DA%A9%D8%A7%D9%85%D9%BE%DB%8C%D9%88%D8%AA%D8%B1%DB%8C)
